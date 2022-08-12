@@ -15,7 +15,7 @@ FinTech
 
 **My favourite player is Roy Keane!**
 
-*He is the best*
+*He is simply the best*
 
 --------------------------------------------------------------------
 
