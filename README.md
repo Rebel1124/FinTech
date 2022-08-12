@@ -11,3 +11,15 @@ Investment Analyst
 * Why did you choose FinTech as a career path?
 
 FinTech
+
+
+**My favourite player is Roy Keane!**
+
+*He is he best*
+
+--------------------------------------------------------------------
+
+"Keegan Daniel was the captain for the sharks"
+
+
+
