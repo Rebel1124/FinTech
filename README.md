@@ -21,5 +21,3 @@ FinTech
 
 "Keegan Daniel was the captain for the sharks"
 
-
-
